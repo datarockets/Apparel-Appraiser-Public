@@ -1,3 +1,3 @@
-# Terms of Use
+# Terms of Service
 
 TBD
